@@ -1,3 +1,3 @@
 # Welcome to CPUD repo!
-# any unauthorize copy is prohibited unless you have authorzie from {ֆʟʏ} Rskit#4126
+# any unauthorize copy is prohibited unless you have authorzie from AzkDev#4126
  
